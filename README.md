@@ -1,2 +1,0 @@
-# Sir-Imran-Ali-
-Assignment
